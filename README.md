@@ -1,0 +1,1 @@
+# Gewichtstabelle-FE-AL-INOX
